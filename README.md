@@ -8,8 +8,9 @@
  can reach for me trough the,
  *email sorasillyracoon@gmail.com* , but give me time to check the emails.
  Fun fact: I love coding but Still learning coding and it's funny.
---> Thank you for reading this still Idk if it's good or anything
+--> Thank you for reading this still Idk if it's good or anything ![me](https://github.com/user-attachments/assets/cbe8d646-20c4-464c-a0bc-4c7bef2e4fe5)
 
-I am also A small youtuber Name: *SoraSun! [psyduck](https://github.com/user-attachments/assets/7384a311-ed2c-4469-b486-42c5010ffe2f)
 
-and Streamer Name: *SoraSunnope
+I am also A small youtuber Name: *SoraSun ![youtube](https://www.youtube.com/@SoraSun)
+
+and Streamer Name: *SoraSunnope ![Twitch](https://www.twitch.tv/sorasunnope)
