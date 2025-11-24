@@ -8,7 +8,7 @@
  can reach for me trough the,
  *email sorasillyracoon@gmail.com* , but give me time to check the emails.
  Fun fact: I love coding but Still learning coding and it's funny.
---> Thank you for reading this still Idk if it's good or anything
+
 ![me](https://github.com/user-attachments/assets/cbe8d646-20c4-464c-a0bc-4c7bef2e4fe5)
 
 
