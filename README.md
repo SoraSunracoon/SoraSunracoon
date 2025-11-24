@@ -11,6 +11,3 @@
 --> Thank you for reading this still Idk if it's good or anything ![me](https://github.com/user-attachments/assets/cbe8d646-20c4-464c-a0bc-4c7bef2e4fe5)
 
 
-I am also A small youtuber Name: *SoraSun (https://www.youtube.com/@SoraSun)
-
-and Streamer Name: *SoraSunnope (https://www.twitch.tv/sorasunnope)
