@@ -9,3 +9,6 @@
  *email sorasillyracoon@gmail.com* , but give me time to check the emails.
  Fun fact: I love coding but Still learning coding and it's funny.
 --> Thank you for reading this still Idk if it's good or anything
+
+I am also A small youtuber Name: *SoraSun
+and Streamer Name: *SoraSunnope
