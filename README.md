@@ -10,5 +10,6 @@
  Fun fact: I love coding but Still learning coding and it's funny.
 --> Thank you for reading this still Idk if it's good or anything
 
-I am also A small youtuber Name: *SoraSun
+I am also A small youtuber Name: *SoraSun! [psyduck](https://github.com/user-attachments/assets/7384a311-ed2c-4469-b486-42c5010ffe2f)
+
 and Streamer Name: *SoraSunnope
